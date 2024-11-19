@@ -1,9 +1,9 @@
 # Hong Jingxin
 
 **联系方式**  
-微信：Realllll_hjxxx
-邮箱：[944977300@qq.com](mailto:944977300@qq.com)
-Researchgate：https://www.researchgate.net/profile/Jingxin-Hong-2
+- 微信：Realllll_hjxxx
+- 邮箱：[944977300@qq.com](mailto:944977300@qq.com)
+- Researchgate：https://www.researchgate.net/profile/Jingxin-Hong-2
 
 ---
 
